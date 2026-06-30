@@ -8,5 +8,6 @@
 - 🏀 I'm from a town about an hour north of Chicago, home of the Bulls. They are my team, although they are struggling quite a bit these days. Their slogan is, *"See Red"* 👀🔴
 - 🚲 I'm trying to do lots of bike riding this summer to explore different areas and stay in shape.
 - 🐶 I have a hound dog named **Flynn**. Like most hounds, he is a real talker and can be quite loud 🙉 but you get used to it. It can be quite funny.
+- ⛵ I am looking forward to traveling to Door County, WI with my family in July. Always lots of cool boats to see out on Lake Michigan.
 - 📫 How to reach me: **aaron.bottner@mymail.champlain.edu**
 
